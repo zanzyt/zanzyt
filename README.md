@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Aleks]!
+# 👋 Hi, I'm Aleks!
 
 🚀 **Software Developer | Problem Solver | Tech Enthusiast**
 
