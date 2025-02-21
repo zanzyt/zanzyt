@@ -31,7 +31,7 @@ Here are some of the projects I'm proud of:
 Let's connect and collaborate! Feel free to reach out to me:
 
 - **Email**: [zanzytmail@duck.com](mailto:zanzytmail@duck.com)
-- **Fakecrime**: [Fakecrime profile @zanzyt](https://fakecrime.bio/zanzyt)
+- **Fakecrime**: [zanzyt](https://fakecrime.bio/zanzyt)
 - **Discord**: [@zanzyt.365](https://discord.com/users/579363773769318431)
 
 ---
